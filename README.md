@@ -1,1 +1,2 @@
 # hello-world
+My name is Cindel. I am a mother to 4 children. Trinity she is 13 and my crazy one. My identical twins are 11 and there names are Haleigh and Kaleigh, they are my sweet ones. My youngest is Tripp he is 5 he is sweet and crazy and a momma's boy. I am in a really good relationship that I have been wanting for, for 5 years. He has 3 children Marianne is 15, Ansleigh is 12 and Leighann is 10. They are wonderful girls and I am so excited to help raise them.
